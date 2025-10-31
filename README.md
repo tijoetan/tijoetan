@@ -1,4 +1,4 @@
-Hi, I’m @tijoetan. 2nd year university student 
+Hi, I’m @tijoetan. 3rd year university student 
 
 
 <!---
